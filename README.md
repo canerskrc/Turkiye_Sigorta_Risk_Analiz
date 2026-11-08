@@ -1,0 +1,1 @@
+# Turkiye_Sigorta_Risk_Analiz
